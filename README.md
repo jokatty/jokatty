@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi 👋
+i would love to collaborate on new ideas or just chit chat
+on ai topics. Don't be shy to say hello, Jo!
+
 
 <!--
 **jokatty/jokatty** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
