@@ -1,4 +1,4 @@
-### Hi 👋
+### Hi,
 I would love to collaborate on new ideas or just chit chat
 on ai topics. Don't be shy to say hello.
 
